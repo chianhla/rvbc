@@ -1,10 +1,10 @@
 #### Church Activities
 
-Worship services: every Sundays 2:00 – 3:30 pm
-Intercessions: Sunday 9:00 – 9:30 am
-Biblical Study for adults: Saturdays 7:00 – 8:30 pm
-Bible study for youth: Tuesdays 7:00 – 8:30 pm
-Biblical study for children: Sundays 3:00 – 3:30 pm
+- Worship services: every Sundays 2:00 – 3:30 pm
+- Intercessions: Sunday 9:00 – 9:30 am
+- Biblical Study for adults: Saturdays 7:00 – 8:30 pm
+- Bible study for youth: Tuesdays 7:00 – 8:30 pm
+- Biblical study for children: Sundays 3:00 – 3:30 pm
 
 #### Các chương trình sinh hoạt
 
